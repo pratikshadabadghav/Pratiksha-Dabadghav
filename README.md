@@ -29,8 +29,6 @@
 
 ## 🔹 Connect With Me
 🔗 [LinkedIn](https://linkedin.com/in/pratiksha-d-1319841a3)  
-📩 **Email:** pdabadghav2017@gmail.com  
-📞 **Phone:** +91 9370811106  
 
 ---
 
