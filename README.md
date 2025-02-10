@@ -1,7 +1,7 @@
 # 👋 Hi, I'm Pratiksha Dabadghav!
 
 🚀 **Power BI Developer | SQL | DAX | ADF | Data Analytics**  
-📍 Pune, India | 🌟 3.5+ years of experience  
+📍 India | 🌟 3.5+ years of experience  
 
 ---
 
